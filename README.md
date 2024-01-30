@@ -5,5 +5,8 @@ Estudiante de software (explotado) 🐱‍👤
 Reverendo vago 😪
 <br>
 Buena onda 😎
-
+<br>
+El amor azulgrana corre por mis venas ❤💙 (Me voy a matar)
+<br>
+Te amo Messi 🤍💙
 
