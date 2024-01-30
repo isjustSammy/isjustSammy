@@ -13,4 +13,8 @@ Te amo Messi 🤍💙
 Pro player de Fortnite🔫
 <br>
 Te amo Spider-Man🕷🕸❤
+<br>
+Domado👻(Me pega mi novia)
+<br>
+Siempre bolo(Solo tomo coca y agua)😛
 
