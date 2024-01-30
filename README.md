@@ -9,4 +9,8 @@ Buena onda 😎
 El amor azulgrana corre por mis venas ❤💙 (Me voy a matar)
 <br>
 Te amo Messi 🤍💙
+<br>
+Pro player de Fortnite🔫
+<br>
+Te amo Spider-Man🕷🕸❤
 
